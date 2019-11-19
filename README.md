@@ -1,1 +1,22 @@
 # hello-world
+fwegeg
+rffsgw
+w
+gweg
+wg
+w
+gw
+rg
+weg
+w
+eg
+weg
+wgw
+gwe
+g
+weg
+weg
+e
+gw
+gw
+g
